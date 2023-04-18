@@ -1,4 +1,2 @@
 # kremlebots
-poteryica
-nfjsdafnhjan
-авав
+welcome to best group ever u see
